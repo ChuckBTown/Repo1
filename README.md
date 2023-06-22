@@ -1,2 +1,0 @@
-# FloQast Case Study
- 
